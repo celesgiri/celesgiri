@@ -16,8 +16,14 @@
 
 ![image](https://github.com/betasayaka/betasayaka/assets/143943991/14760305-8169-45c3-be24-5ea550d7791c)
 
-![image](https://github.com/betasayaka/betasayaka/assets/143943991/40afe63c-0198-4f88-a718-a4f3558e9e3f)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤcuddle me whenever im alone i'll post you on hereㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi ask for you **NOT** to copy my friends skins or i will personally bite your head off.. ://
+![image](https://github.com/betasayaka/betasayaka/assets/143943991/40afe63c-0198-4f88-a718-a4f3558e9e3f)ㅤ
 
+![image](https://github.com/celesgiri/celesgiri/assets/143943991/74049521-be0d-40e5-8a17-1bfa287eb0f0)
+
+^ i hate these losers btw! you shouldnt interact w/ them they stink. :// (/j)
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤcuddle me whenever im alone i'll post you on hereㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 ![tumblr_d52f0d869aa5d8f29315fcc83cb41042_b46d3d0f_100](https://github.com/betasayaka/betasayaka/assets/143943991/f130dd9d-0091-44e7-a86b-13ecaa665ca2)
 ![tumblr_add64ccd2763f514ff1fb330408b74d2_e76ee49e_100](https://github.com/betasayaka/betasayaka/assets/143943991/b1b6867d-e46d-443f-a297-da9cb7ad5af6)
