@@ -5,7 +5,7 @@
 ㅤㅤi use she, he or meow. hispanic living in seasian !!ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤim not gonna list everything here, you can find my information [here](https://rentry.co/abilityiamacat)
 ![](https://64.media.tumblr.com/bddbb35d8a8c0d678c4df35488b2809c/75a6232dba71d7c6-e2/s540x810/2e8aee00b8cb75cc7507f29cd3fcfdff9d5e7de6.pnj)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤcuddle pageㅤ;;ㅤ idk why i made this i like people cuddling me so im posting it on hereㅤㅤㅤㅤ
+ㅤㅤscreenshot pageㅤ;;ㅤ sillyㅤㅤㅤ
 
 
 
@@ -21,6 +21,12 @@
 ![image](https://github.com/celesgiri/celesgiri/assets/143943991/74049521-be0d-40e5-8a17-1bfa287eb0f0)
 
 ^ i hate these losers btw! you shouldnt interact w/ them they stink. :// (/j)
+
+![Screenshot 2023-09-27 193058](https://github.com/celesgiri/celesgiri/assets/143943991/36314a57-93d0-48cf-a51d-c340ec501e28)
+
+![Screenshot 2023-09-27 193026](https://github.com/celesgiri/celesgiri/assets/143943991/e911e570-aea7-4cd3-bade-54b3361af2ef) ft [@ILOVETHESILENCE](https://github.com/ILOVETHESILENCE)/dazai eats u
+
+
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤcuddle me whenever im alone i'll post you on hereㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
