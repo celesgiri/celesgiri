@@ -24,7 +24,7 @@
 
 ![Screenshot 2023-09-27 193058](https://github.com/celesgiri/celesgiri/assets/143943991/36314a57-93d0-48cf-a51d-c340ec501e28)
 
-![Screenshot 2023-09-27 193026](https://github.com/celesgiri/celesgiri/assets/143943991/e911e570-aea7-4cd3-bade-54b3361af2ef) ft [@ILOVETHESILENCE](https://github.com/ILOVETHESILENCE)/dazai eats u
+![Screenshot 2023-09-27 193026](https://github.com/celesgiri/celesgiri/assets/143943991/e911e570-aea7-4cd3-bade-54b3361af2ef) ft [@Imrbeastyaoi](https://github.com/mrbeastyaoi)/dazai eats u
 
 
 
