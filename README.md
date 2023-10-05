@@ -81,6 +81,10 @@
 ![](https://64.media.tumblr.com/b0beaae38ffaaaddf987a9658e864df7/tumblr_pcq4e5vbHw1xbgu08o1_100.png)
 ![](https://64.media.tumblr.com/e63c7ae02b3c4ae00141136515784c15/tumblr_pcq4e5vbHw1xbgu08o7_100.png)
 
+![](https://media.discordapp.net/attachments/1151456597164425260/1159481366350659604/1147777953455931392chat.png?ex=65312e2b&is=651eb92b&hm=09fa5d53286c7371f3a0de4acd3e327c5e1dafd6a0793b30f39e31fc32f1f3d5&=&width=738&height=418)
+
+^ me coded
+
 
 ![](https://64.media.tumblr.com/2768bbfb71d5659e4c95610a74d36cdd/c4d08067632bcc34-ef/s400x600/990dd4cced7eaf857c246d6e3d16637db974b5a3.pnj)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤ
