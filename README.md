@@ -26,6 +26,8 @@
 
 ![Screenshot 2023-09-27 193026](https://github.com/celesgiri/celesgiri/assets/143943991/e911e570-aea7-4cd3-bade-54b3361af2ef) ft [@Imrbeastyaoi](https://github.com/mrbeastyaoi)/dazai eats u
 
+![image](https://github.com/celesgiri/celesgiri/assets/143943991/10f573b9-74ca-46f0-bada-ac0f49e87bc2)
+
 
 
 
