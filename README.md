@@ -1,31 +1,6 @@
-![](https://64.media.tumblr.com/2768bbfb71d5659e4c95610a74d36cdd/c4d08067632bcc34-ef/s400x600/990dd4cced7eaf857c246d6e3d16637db974b5a3.pnj)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤ
-![](https://64.media.tumblr.com/bddbb35d8a8c0d678c4df35488b2809c/75a6232dba71d7c6-e2/s540x810/2e8aee00b8cb75cc7507f29cd3fcfdff9d5e7de6.pnj)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤyou can call me **sayaka**, **maizono** or **natsume**. whichever you find preference in.ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤi use she, he or meow. hispanic living in seasian !!ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤim not gonna list everything here, you can find my information [here](https://rentry.co/abilityiamacat)
-![](https://64.media.tumblr.com/bddbb35d8a8c0d678c4df35488b2809c/75a6232dba71d7c6-e2/s540x810/2e8aee00b8cb75cc7507f29cd3fcfdff9d5e7de6.pnj)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤscreenshot pageㅤ;;ㅤ sillyㅤㅤㅤ
+zzz burnt out dniuf/id for now
 
-
-
-
-![Screenshot 2023-09-21 102338](https://github.com/betasayaka/betasayaka/assets/143943991/18734fcc-6267-47f5-9937-932e992b8d2f)
-
-![Screenshot 2023-09-20 072652](https://github.com/betasayaka/betasayaka/assets/143943991/4d82d67d-1e4c-4dd7-a466-b9068a953dae)
-
-![image](https://github.com/betasayaka/betasayaka/assets/143943991/14760305-8169-45c3-be24-5ea550d7791c)
-
-![image](https://github.com/betasayaka/betasayaka/assets/143943991/40afe63c-0198-4f88-a718-a4f3558e9e3f)ㅤ
-
-![image](https://github.com/celesgiri/celesgiri/assets/143943991/74049521-be0d-40e5-8a17-1bfa287eb0f0)
-
-^ i hate these losers btw! you shouldnt interact w/ them they stink. :// (/j)
-
-![Screenshot 2023-09-27 193058](https://github.com/celesgiri/celesgiri/assets/143943991/36314a57-93d0-48cf-a51d-c340ec501e28)
-
-![Screenshot 2023-09-27 193026](https://github.com/celesgiri/celesgiri/assets/143943991/e911e570-aea7-4cd3-bade-54b3361af2ef) ft [@Imrbeastyaoi](https://github.com/mrbeastyaoi)/dazai eats u
-
+![Screenshot 2023-09-20 072652](https://github.com/betasayaka/betasayaka/assets/143943991/4d82d67d-1e4c-4dd7-a466-b9068a953dae)![image](https://github.com/betasayaka/betasayaka/assets/143943991/14760305-8169-45c3-be24-5ea550d7791c)![image](https://github.com/betasayaka/betasayaka/assets/143943991/40afe63c-0198-4f88-a718-a4f3558e9e3f)ㅤ![image](https://github.com/celesgiri/celesgiri/assets/143943991/74049521-be0d-40e5-8a17-1bfa287eb0f0)![Screenshot 2023-09-21 102338](https://github.com/betasayaka/betasayaka/assets/143943991/18734fcc-6267-47f5-9937-932e992b8d2f)![Screenshot 2023-09-27 193058](https://github.com/celesgiri/celesgiri/assets/143943991/36314a57-93d0-48cf-a51d-c340ec501e28)![Screenshot 2023-09-27 193026](https://github.com/celesgiri/celesgiri/assets/143943991/e911e570-aea7-4cd3-bade-54b3361af2ef) ft [@Imrbeastyaoi](https://github.com/mrbeastyaoi)/dazai eats u
 ![image](https://github.com/celesgiri/celesgiri/assets/143943991/10f573b9-74ca-46f0-bada-ac0f49e87bc2)
 
 
