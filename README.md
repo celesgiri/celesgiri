@@ -1,4 +1,4 @@
-zzz burnt out dniuf/id for now
+i have 3 moods happy inbetween burnt ok so maybe i am autistic......... ;-;
 
 ![Screenshot 2023-09-20 072652](https://github.com/betasayaka/betasayaka/assets/143943991/4d82d67d-1e4c-4dd7-a466-b9068a953dae)![image](https://github.com/betasayaka/betasayaka/assets/143943991/14760305-8169-45c3-be24-5ea550d7791c)![image](https://github.com/betasayaka/betasayaka/assets/143943991/40afe63c-0198-4f88-a718-a4f3558e9e3f)ㅤ![image](https://github.com/celesgiri/celesgiri/assets/143943991/74049521-be0d-40e5-8a17-1bfa287eb0f0)![Screenshot 2023-09-21 102338](https://github.com/betasayaka/betasayaka/assets/143943991/18734fcc-6267-47f5-9937-932e992b8d2f)![Screenshot 2023-09-27 193058](https://github.com/celesgiri/celesgiri/assets/143943991/36314a57-93d0-48cf-a51d-c340ec501e28)![Screenshot 2023-09-27 193026](https://github.com/celesgiri/celesgiri/assets/143943991/e911e570-aea7-4cd3-bade-54b3361af2ef) ft [@Imrbeastyaoi](https://github.com/mrbeastyaoi)/dazai eats u
 ![image](https://github.com/celesgiri/celesgiri/assets/143943991/10f573b9-74ca-46f0-bada-ac0f49e87bc2)
