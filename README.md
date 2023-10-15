@@ -1,12 +1,4 @@
-i have 3 moods happy inbetween burnt ok so maybe i am autistic......... ;-;
-
-![Screenshot 2023-09-20 072652](https://github.com/betasayaka/betasayaka/assets/143943991/4d82d67d-1e4c-4dd7-a466-b9068a953dae)![image](https://github.com/betasayaka/betasayaka/assets/143943991/14760305-8169-45c3-be24-5ea550d7791c)![image](https://github.com/betasayaka/betasayaka/assets/143943991/40afe63c-0198-4f88-a718-a4f3558e9e3f)ㅤ![image](https://github.com/celesgiri/celesgiri/assets/143943991/74049521-be0d-40e5-8a17-1bfa287eb0f0)![Screenshot 2023-09-21 102338](https://github.com/betasayaka/betasayaka/assets/143943991/18734fcc-6267-47f5-9937-932e992b8d2f)![Screenshot 2023-09-27 193058](https://github.com/celesgiri/celesgiri/assets/143943991/36314a57-93d0-48cf-a51d-c340ec501e28)![Screenshot 2023-09-27 193026](https://github.com/celesgiri/celesgiri/assets/143943991/e911e570-aea7-4cd3-bade-54b3361af2ef) ft [@Imrbeastyaoi](https://github.com/mrbeastyaoi)/dazai eats u
-![image](https://github.com/celesgiri/celesgiri/assets/143943991/10f573b9-74ca-46f0-bada-ac0f49e87bc2)
-
-
-
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤcuddle me whenever im alone i'll post you on hereㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+# [messy celesgiri yuri](https://www.tumblr.com/celegiri-celesgiri/113760515720/deadcoral-source-one-of-the-dangan-ronpa-anime)
 
 ![tumblr_d52f0d869aa5d8f29315fcc83cb41042_b46d3d0f_100](https://github.com/betasayaka/betasayaka/assets/143943991/f130dd9d-0091-44e7-a86b-13ecaa665ca2)
 ![tumblr_add64ccd2763f514ff1fb330408b74d2_e76ee49e_100](https://github.com/betasayaka/betasayaka/assets/143943991/b1b6867d-e46d-443f-a297-da9cb7ad5af6)
@@ -57,11 +49,26 @@ i have 3 moods happy inbetween burnt ok so maybe i am autistic......... ;-;
 ![](https://64.media.tumblr.com/ba28bcfb094bb3bd44211761afdca66f/tumblr_pcq59nm7l61xbgu08o4_100.png)
 ![](https://64.media.tumblr.com/b0beaae38ffaaaddf987a9658e864df7/tumblr_pcq4e5vbHw1xbgu08o1_100.png)
 ![](https://64.media.tumblr.com/e63c7ae02b3c4ae00141136515784c15/tumblr_pcq4e5vbHw1xbgu08o7_100.png)
+![image](https://github.com/celesgiri/celesgiri/assets/143943991/b9107e59-e6dd-4d86-a896-8e1019c13929)
+![image](https://github.com/celesgiri/celesgiri/assets/143943991/7ec0091a-7274-4a29-b2b0-a9ef4bca1987)
+![image](https://github.com/celesgiri/celesgiri/assets/143943991/a589f830-3b1f-4e76-ab10-7fec3d5a59e9)
+![](https://64.media.tumblr.com/494116af4c9863695ca37f31d56513db/61be0162fb928b73-cc/s100x200/7487e0528f29d841de17cbd057c524895653bce5.png)
+![image](https://github.com/celesgiri/celesgiri/assets/143943991/e878eab3-fde5-468b-93d9-3e9c160edac8)
+![image](https://github.com/celesgiri/celesgiri/assets/143943991/c541e67d-9ea7-4a7a-8dc6-1e566834b026)
+![image](https://github.com/celesgiri/celesgiri/assets/143943991/46e7baf3-253a-46b4-946d-51880a14995d)
+![image](https://github.com/celesgiri/celesgiri/assets/143943991/a06fe108-012a-4616-b7fd-03c6571997c0)![image](https://github.com/celesgiri/celesgiri/assets/143943991/f82bfb82-0dd2-4955-aaa5-043f0ae0675d)![image](https://github.com/celesgiri/celesgiri/assets/143943991/1afefb62-203a-43ed-93fa-bd07f4aef6ee)![image](https://github.com/celesgiri/celesgiri/assets/143943991/11b57115-7641-4523-b901-d27882d50a31)![image](https://github.com/celesgiri/celesgiri/assets/143943991/8eae9928-3e69-4932-948a-4bac37c8466c)![image](https://github.com/celesgiri/celesgiri/assets/143943991/0dfae386-87b9-4275-9c69-b7d79b15e29a)![image](https://github.com/celesgiri/celesgiri/assets/143943991/f69c5211-34fc-4d4b-9b1c-e8d44992c118)![image](https://github.com/celesgiri/celesgiri/assets/143943991/a0e5e0ef-692e-4d8a-9f70-fa1201392f9b)![image](https://github.com/celesgiri/celesgiri/assets/143943991/740a0e81-b9a1-4477-b5b2-df9e4c7ba6e1)
+![image](https://github.com/celesgiri/celesgiri/assets/143943991/29efa102-0fbe-4e43-95ea-f29d62e9aee1)![image](https://github.com/celesgiri/celesgiri/assets/143943991/d344bb96-d0e7-4909-a7d0-3c6d23baeafe)![](https://files.catbox.moe/bhrxad.gif)
 
-![](https://media.discordapp.net/attachments/1151456597164425260/1159481366350659604/1147777953455931392chat.png?ex=65312e2b&is=651eb92b&hm=09fa5d53286c7371f3a0de4acd3e327c5e1dafd6a0793b30f39e31fc32f1f3d5&=&width=738&height=418)
-
-^ me coded
 
 
-![](https://64.media.tumblr.com/2768bbfb71d5659e4c95610a74d36cdd/c4d08067632bcc34-ef/s400x600/990dd4cced7eaf857c246d6e3d16637db974b5a3.pnj)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤ
+
+
+
+
+
+
+
+
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
